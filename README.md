@@ -1,1 +1,1 @@
-ugjhhjmmm i suvck at interacting withpeopleSORRY
+hihi!!! to any friends I have on ponytown and never get to interact with IM SORRY AHGHH my sleep schedule is BONKERS and I'm always tired as shit when friends come online 😭😭😭 AND IMALSO HUST TOO ACARED TO INTERACT WITH PEOPLE EVEN IF IMFRIEBF AITH THEM IM SORRY I HAVENT MADE ABY FRIENDS TIL NOW FOR LIKE 3 GMYEARS 
