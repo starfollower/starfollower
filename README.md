@@ -2,7 +2,7 @@ hey! if you want to interact with me (pls), whisper me! I'm almost always offtab
 
 c+h is ALWAYS allowed!! no need to ask, and preferably don't ask. i might disconnect, but i don't mean to actually leave lol
 
-medkit is my favourite phighting character and has been for a year lmao, shuriken and rocket r runner ups :P (same with subspace)
+medkit is my favourite phighting character and has been for a year !!, shuriken and rocket r runner ups :P (same with subspace)
 
 adhd that fucks me up!! be a lil bit cautious interacting w/ me.. but don't change urself entirely PLEAS
 mood swings eew
