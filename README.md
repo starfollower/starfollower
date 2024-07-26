@@ -4,7 +4,7 @@ c+h is ALWAYS allowed!! no need to ask, and preferably don't ask. i might discon
 
 medkit is my favourite phighting character and has been for a year !!, shuriken and rocket r runner ups :P (same with subspace)
 
-adhd that fucks me up!! be a lil bit cautious interacting w/ me.. but don't change urself entirely PLEAS
+adhd that fucks me up!! be a lil bit cautious interacting w/ me.. aa
 mood swings eew
 
 feel free to interact though! always whisper me though, please. half the time i won't see and i'd like to make friends .. (preferably that share both osc/phighting interests just so i can communicate easier. sorry it's so hard)
