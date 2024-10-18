@@ -1,5 +1,12 @@
-![](https://komarev.com/ghpvc/?username=starfollower&label=an_engima&color=0B1F6E)
-
+![](https://komarev.com/ghpvc/?username=starfollower&label=hey..&color=FD0202)
 <p align="center">
-Hi;-;I NEED FRIENDS! BUTI HATE TALKING TO PEOPLE! sign my atabook
+  <img width="313" height="313" src="https://files.catbox.moe/earl3d.png">
+</p>
+<p align="center">
+sign my atabook
+  
+  
+</p>
+<p align="center">
+  c+h always! feel free to interact, or just add me. idm! i just suck at talking ://
 </p>
