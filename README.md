@@ -1,9 +1,5 @@
-![](https://komarev.com/ghpvc/?username=starfollower&label=an_engima&color=B4E615)
+![](https://komarev.com/ghpvc/?username=starfollower&label=an_engima&color=0B1F6E)
 
-dni if you're a pro/com/darkshipper get away from me please 
-
-c+h is always allowed unless i'm actively talking with somebody . rocket fictkin for like 9 months now lmfao help me
-
-do not talk to me about shuriken x medkit.
-
-btw im not some random phighting fan sitting in the osc area i've been in the osc for 7 years 🤫 🤫 🤫 
+<p align="center">
+Hi;-;I NEED FRIENDS! BUTI HATE TALKING TO PEOPLE! sign my atabook
+</p>
