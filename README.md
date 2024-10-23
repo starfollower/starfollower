@@ -11,5 +11,5 @@ sign my atabook
   c+h always! feel free to interact, or just add me. idm! i just suck at talking ://
 </p>
 <p align="center">
-  preferably only (or at LEAST primarily) call me rocket UNLESS it's to prevent confusion, or if you're a specific group, thanks.
+  preferably only (or at LEAST primarily) call me rocket. UNLESS it's to prevent confusion, or if you're a specific group, thanks.
 </p>
