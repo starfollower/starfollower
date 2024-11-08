@@ -12,4 +12,4 @@ sign my atabook
 
 </p>
 <p align="center">
-hey anyone remember when the phighting area was where the osc area is like a year ago? no? just me.?
+hey anyone remember when the phighting area was where the osc area is (specifically in the ruins) like a year ago? no? just me.?
