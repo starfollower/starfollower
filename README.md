@@ -1,3 +1,6 @@
  ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𓆩⠀⠀⠀ [info ﹢ socials directory](https://rentry.co/watchitallburn)⠀⠀⠀ 𓆪
+ 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀
-![ic poppyyypetals](https://files.catbox.moe/mywh2w.png)
+<p align="center">
+    <img width="200" src="https://files.catbox.moe/0o55rs.png" alt="ac:EasternightF">
+</p>
