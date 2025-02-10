@@ -1,5 +1,5 @@
 
-[READ THISSS](https://rentry.co/rocketphighting) I'm NOT remaking my readme rn IDONT GAF
+[rentry](https://rentry.co/rocketphighting) .. read this .  I'm NOT remaking my readme rn IDONT GAF
 
 swiord is  my wi  fe
 
