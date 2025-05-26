@@ -5,6 +5,6 @@
 
 i have adhd and bpd and i hate squirrels
 
-these WILL affect my interactions greatly. I do not enjoy interacting with people a majority of the time RN unless it's my girlfriend + general friendgroup
+these WILL affect my interactions greatly. I do not enjoy interacting with people a majority of the time RN unless it's my girlfriend + general friendgroup ..also squirrels dni
 
 </p>
