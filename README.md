@@ -9,4 +9,6 @@ i have adhd and bpd and i hate squirrels
 
 these WILL affect my interactions greatly. I do not enjoy interacting with people a majority of the time RN unless it's my girlfriend + general friendgroup ..also squirrels dni
 
+
+phighting is my main interest and that is literally never gonna change. been into it for two years and i'm not getting out
 </p>
