@@ -5,7 +5,7 @@
 
 she / her / any , 17  ,, into pokemon and phighting + (roblox as a whole)
 
-call me rocket or uhyh Nothing else actually thx
+call me rocket or uhh Nothing else actually thx
 
 pokepark is my childhood game .. pokepark 3 ? when
 
