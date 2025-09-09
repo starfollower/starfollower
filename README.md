@@ -26,8 +26,9 @@
  $\texttt{\color{#14606e}── .✦\}$\
 $\texttt{\color{#158b75}⊹ ࣪ ˖　rocket　⼃ 　 sonnet}$\
 $\texttt{\color{#158b75}　she　⼃　he　　⟢　　adhd　──　intp}$\
-$\texttt{\color{#158b75}ノ}$　　[prns.cc](https://pronouns.cc/@meraki) 　　[ata](https://rocket.atabook.org/) 　　[rentry](https://rentry.co/rocketphighting)  　　 $\texttt{\color{#158b75}.ᐟ.ᐟ}$
-
+$\texttt{\color{#158b75}ノ}$　　[prns.cc](https://pronouns.cc/@meraki) 　　[ata](https://rocket.atabook.org/) 　　[rentry](https://rentry.co/rocketphighting)  　　 $\texttt{\color{#158b75}.ᐟ.ᐟ}$\
+ $\texttt{\color{#14606e}(˶ᵔ ᵕ ᵔ˶)\}$\
+$\texttt{\color{#158b75} sword  (phighting)　+　 alan (orison) yume .. more info on prnscc}$
 
   
 
