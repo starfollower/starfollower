@@ -4,7 +4,8 @@
 
   call me rocket . preferably only call me that. thankies
   I go by she/he , i have bpd and adhd
-  i'm SEVENTEEN YEARS OLD. anyone under FOURTEEN DNI . if ur 14 IWC!!!
+  i'm SEVENTEEN YEARS OLD. ALMOST eighteen
+  anyone under FOURTEEN DNI . if ur 14 IWC!!!
   I don't want to be friends with people that much younger than me!!! sorry!
 
   
