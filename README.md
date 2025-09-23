@@ -14,6 +14,7 @@
   I am not very talkative and whenever i play this game fat chance I'm OFFTAB !! 
   w2i if you must! I may not reply because I am VERY shy, I'M SORRY!!!
   don't flirt with me plss </3
+  c+h is ENCOURAGED!!! PLEASE SIT WITH ME!!! i will NOT talk (bc im shy) BUT PLS!
 
   shuriboard shippers respectfully dni / iwc if u mussstttt..... 
   huge discomfort ship , thank you
@@ -25,6 +26,9 @@
 
   I'm also a rocket fictkin and have been for two years
    if that bugs you #leavemalone idc sorry
+
+   I genuinely do not care if you take inspiration off my ponies.
+   I encourage it. I think it's nice to see. not like i can stop you anyway
 
    
 
