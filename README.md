@@ -24,8 +24,8 @@
 
   shuriboard shippers respectfully dni / iwc if u mussstttt..... 
   huge discomfort ship , thank you
-  ^^ this also goes for banbox shippers , 
-  coilshot shippers iwc 
+  ^^ this also goes for banbox and shurivalk shippers , 
+  coilshot, medhammer shippers iwc 
 
   I really like swocket and I'm an avid sword selfshipper .. 
   I am Very selective and I'd honestly prefer if u didn't int 
