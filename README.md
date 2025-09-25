@@ -1,5 +1,9 @@
 <div align="center">
   <pre>
+
+![](https://komarev.com/ghpvc/?username=starfollower&style=plastic&color=00229e&label=heyguyssss)
+
+    
   placeholder #iguess
 
   call me rocket . preferably only call me that. thankies
