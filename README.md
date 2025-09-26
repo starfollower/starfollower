@@ -12,7 +12,7 @@ rocket she he enby  . 17
 inspo allowed  #IDC!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
 
-   NONSHARING sword selfshipper ,, bc me and my girlfriend are swocket
+   non-sharing sword selfshipper . doubles dni as it's very personal to me </3
 
 
   pokemon fan since like 2012 or something idk i was in my googo gaga phase doe so like .. POKEPARK FANS  I LOVE YOU
