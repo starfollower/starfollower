@@ -14,6 +14,8 @@ inspo allowed  #IDC!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
    non-sharing sword selfshipper . doubles dni as it's very personal to me </3
 
+   rocket fictkin for 2 yrs uuuhhhhhh
+
 
   pokemon fan since 2012 .. POKEPARK FANS  I LOVE YOU
 
