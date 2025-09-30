@@ -6,7 +6,8 @@
 rocket\
 fictkin\
 any pronouns , she pref \
-swocketeer
+swocketeer\
+non-sharing sword selfshipper 
 
 [ponytown rentry](https://rentry.co/boomvvave)\
 [atabook](https://rocket.atabook.org/)
