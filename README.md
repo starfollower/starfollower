@@ -7,7 +7,8 @@ rocket\
 fictkin\
 any pronouns , she pref \
 swocketeer\
-non-sharing sword selfshipper 
+non-sharing sword selfshipper \
+i'm usually sat at osc or roblox
 
 [ponytown rentry](https://rentry.co/boomvvave)\
 [atabook](https://rocket.atabook.org/)
