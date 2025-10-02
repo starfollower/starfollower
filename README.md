@@ -8,7 +8,8 @@ fictkin\
 any pronouns , she pref \
 swocketeer\
 non-sharing sword selfshipper \
-i'm usually sat at osc or roblox
+i'm usually sat at osc or roblox\
+i struggle wit rly evil headaches that make me dizzy #AF i'm sorry if i RANDOMLY LEAVE AHHH
 
 [ponytown rentry](https://rentry.co/boomvvave)\
 [atabook](https://rocket.atabook.org/)
