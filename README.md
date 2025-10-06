@@ -8,7 +8,8 @@
 
 $\texttt{\color{#e1965b}Rocket or Captain}$\
 $\texttt{\color{#db594a}fictkin }$\
-$\texttt{\color{#e1965b}she any , 7teen}$
+$\texttt{\color{#e1965b}she any}$ 
+$\texttt{\color{#db594a}7teen}$
 
 [ata](https://rocket.atabook.org/)    [rentry](https://rentry.co/carseatheadrst)
 
