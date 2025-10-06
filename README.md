@@ -1,21 +1,21 @@
 <div align="center">
  
 
-![](https://komarev.com/ghpvc/?username=starfollower&style=plastic&color=00229e&label=heyguyssss)
+![](https://komarev.com/ghpvc/?username=starfollower&style=flat&color=e1965b&label=heyguyssss)
 
-rocket\
-fictkin\
-any pronouns , she pref \
-swocketeer\
-non-sharing sword selfshipper \
-i'm usually sat at osc or roblox\
-i struggle wit rly evil headaches that make me dizzy #AF i'm sorry if i RANDOMLY LEAVE AHHH
 
-[ponytown rentry](https://rentry.co/boomvvave)\
-[atabook](https://rocket.atabook.org/)
+![](https://files.catbox.moe/y4ixn6.png)
 
-<img src="https://files.catbox.moe/hzcrgz.gif" />\
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&bar_color=18a09d&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&redirect=true)
+$\texttt{\color{#e1965b}rocket}$\
+$\texttt{\color{#db594a}fictkin }$\
+$\texttt{\color{#e1965b}she  any}$
+
+[ata](https://rocket.atabook.org/)    [rentry](https://rentry.co/carseatheadrst)
+
+$\texttt{\color{#db594a}swocketeer ♡ }$\
+$\texttt{\color{#db594a}c+h encouraged }$
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=db594a&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&redirect=true)
   
 
 </div>
