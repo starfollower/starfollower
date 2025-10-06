@@ -6,7 +6,7 @@
 
 ![](https://files.catbox.moe/y4ixn6.png)
 
-$\texttt{\color{#e1965b}rocket}$\
+$\texttt{\color{#e1965b}Rocket or Captain}$\
 $\texttt{\color{#db594a}fictkin }$\
 $\texttt{\color{#e1965b}she  any}$
 
