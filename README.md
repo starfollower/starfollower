@@ -7,8 +7,8 @@
 ![](https://files.catbox.moe/y4ixn6.png)
 
 $\texttt{\color{#e1965b}Rocket or Captain}$\
-$\texttt{\color{#db594a}17  ,,  fictkin }$\
-$\texttt{\color{#e1965b}she  any}$
+$\texttt{\color{#db594a}ictkin }$\
+$\texttt{\color{#e1965b}she  any , 7teen}$
 
 [ata](https://rocket.atabook.org/)    [rentry](https://rentry.co/carseatheadrst)
 
