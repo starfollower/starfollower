@@ -11,7 +11,7 @@ $\texttt{\color{#db594a}fictkin }$\
 $\texttt{\color{#e1965b}she any}$ 
 $\texttt{\color{#db594a}7teen}$
 
-[ata](https://rocket.atabook.org/)    [rentry](https://rentry.co/carseatheadrst)
+[ata](https://rocket.atabook.org/)    [rentry](https://rentry.co/carseatheadrst)    [prnscc](https://pronouns.cc/@rocket)
 
 $\texttt{\color{#db594a}swocketeer ♡ }$\
 $\texttt{\color{#db594a}c+h encouraged }$\
