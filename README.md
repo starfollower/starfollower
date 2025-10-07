@@ -9,7 +9,8 @@
 $\texttt{\color{#e1965b}Rocket or Captain}$\
 $\texttt{\color{#db594a}fictkin }$\
 $\texttt{\color{#e1965b}she any}$ 
-$\texttt{\color{#db594a}7teen}$
+$\texttt{\color{#db594a}7teen}$\
+$\texttt{\color{#e1965b}inspo OK !}$ 
 
 [ata](https://rocket.atabook.org/)    [rentry](https://rentry.co/carseatheadrst)    [prnscc](https://pronouns.cc/@rocket)
 
