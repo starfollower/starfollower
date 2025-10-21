@@ -17,7 +17,8 @@ $\texttt{\color{#9b6c8a}enby ‎ ♡ ‎ fictkin}$
 
 $\texttt{\color{#e8c995}i'll redo my socials at one point LOL }$
 
-
+ ‎ ‎ 
+  ‎ ‎ 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=db594a&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&redirect=true)
-  
+    
 </div>
