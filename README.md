@@ -18,10 +18,13 @@ $\texttt{\color{#cc7b7e}enby ‎ ♡ ‎ fictkin}$
 $\texttt{\color{#daa288}i'll redo my socials at one point LOL }$\
 [ata](https://rocket.atabook.org/)
 
+
 $\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$\
 $\texttt{\color{#daa288} don't try to find me, ‎ }$\
 $\texttt{\color{#daa288} -‎ ‎ andrew ‎ }$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=db594a&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&redirect=true)
+
+$\texttt{\color{#cc7b7e}<‎ }$ [‎sword‎](https://www.tickcounter.com/countup/468163/swords-been-my-wife-for) $\texttt{\color{#cc7b7e}‎ ‎3}$
     
 </div>
