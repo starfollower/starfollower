@@ -15,8 +15,7 @@ $\texttt{\color{#893a55}she ‎ ‎ ‎ ‎‎/ ‎ ‎ ‎ ‎he }$\
 $\texttt{\color{#cc7b7e}enby ‎ ♡ ‎ fictkin}$
 
 
-$\texttt{\color{#daa288}i'll redo my socials at one point LOL }$\
-[ata](https://rocket.atabook.org/)
+[rentry](https://rentry.co/rocketphighting)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[ata](https://rocket.atabook.org/)
 
 
 $\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$\
