@@ -15,7 +15,7 @@ $\texttt{\color{#893a55}she ‎ ‎ ‎ ‎‎/ ‎ ‎ ‎ ‎he }$\
 $\texttt{\color{#cc7b7e}enby ‎ ♡ ‎ fictkin}$
 
 
-[rentry](https://rentry.co/rocketphighting)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[ata](https://rocket.atabook.org/)
+[rentry](https://rentry.co/rocketphighting)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[ata](https://rocket.atabook.org/)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[strawpg](https://andrewpwn.straw.page/)
 
 
 $\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$\
