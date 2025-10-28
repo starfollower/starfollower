@@ -8,7 +8,7 @@ $\texttt{\color{#9e4366}" i hate you like bloody knuckles and i hate you like an
 
 
     
-![](https://files.catbox.moe/9vo08t.png)
+![](https://files.catbox.moe/nuk42b.png)
 
 $\texttt{\color{#4a2c4d}rocket ‎}$\
 $\texttt{\color{#893a55}she ‎ ‎ ‎ ‎‎/ ‎ ‎ ‎ ‎he }$\
