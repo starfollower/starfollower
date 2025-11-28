@@ -1,4 +1,8 @@
+
+
 <div align="center">
+ 
+$\texttt{\color{#d6a481}FORSAKEN PLAYERS DNI}$
 
 ![](https://komarev.com/ghpvc/?username=starfollower&style=flat&color=4a2c4d&label= i+ +loved +you.+ + )
 
