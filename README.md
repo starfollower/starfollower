@@ -7,7 +7,7 @@
 
 
 
-$\texttt{\color{#79babe}"  A  GOD  DOES}$ $\texttt{\color{#be72b7}NOT FEAR  DEATH!  "}$
+$\text{\color{#79babe}"  A  GOD  DOES}$ $\texttt{\color{#be72b7}NOT FEAR  DEATH!  "}$
  
   
 
@@ -15,9 +15,9 @@ $\texttt{\color{#79babe}"  A  GOD  DOES}$ $\texttt{\color{#be72b7}NOT FE
     
 ![](https://files.catbox.moe/z0xpul.png)
 
-$\texttt{\color{#705b8d}rocket ‎}$\
-$\texttt{\color{#be72b7}she ‎ ‎ ‎ ‎‎/ ‎ ‎ ‎ ‎he }$\
-$\texttt{\color{#79babe}enby ‎ ♡ ‎ fictkin}$
+$\text{\color{#705b8d}rocket ‎}$\
+$\text{\color{#be72b7}she ‎ ‎ ‎ ‎‎/ ‎ ‎ ‎ ‎he }$\
+$\text{\color{#79babe}enby ‎ ♡ ‎ fictkin}$
 
 
 [rentry](https://rentry.co/thelostadventurer)$\texttt{\color{#79babe} ‎ ♡ ‎ }$[ata](https://rocket.atabook.org/)$\texttt{\color{#be72b7} ‎ ♡ ‎ }$[strawpg](https://andrewpwn.straw.page/)
