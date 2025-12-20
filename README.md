@@ -23,6 +23,8 @@ $\text{\color{#79babe}enby ‎ ♡ ‎ fictkin}$
 [rentry](https://rentry.co/thelostadventurer)$\texttt{\color{#79babe} ‎ ♡ ‎ }$[ata](https://rocket.atabook.org/)$\texttt{\color{#be72b7} ‎ ♡ ‎ }$[strawpg](https://andrewpwn.straw.page/)
 
 [COLOUR MY TREE ✧](https://colormytree.me/2025/01JED2BG3P874ZB3VMYCKRXPWV)\
+$\text{\color{#79babe} ‎ ♡ ‎ }$\
+[join our ponytown phighting / multifandom discord server !!](https://discord.gg/sjJ7dq88RB)\
 \
    ‎ 
 
