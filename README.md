@@ -24,7 +24,6 @@ $\text{\color{#79babe}enby ‎ ♡ ‎ fictkin}$
 
 [COLOUR MY TREE ✧](https://colormytree.me/2025/01JED2BG3P874ZB3VMYCKRXPWV)\
 $\text{\color{#79babe} ‎ ♡ ‎ }$\
-[join our ponytown phighting / multifandom discord server !!](https://discord.gg/sjJ7dq88RB)\
 \
    ‎ 
 
