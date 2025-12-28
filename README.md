@@ -20,7 +20,7 @@ $\text{\color{#be72b7}she ‎ ‎ ‎ ‎‎/ ‎ ‎ ‎ ‎he }$\
 $\text{\color{#79babe}enby ‎ ♡ ‎ fictkin}$
 
 
-[rentry](https://rentry.co/thelostadventurer)$\texttt{\color{#79babe} ‎ ♡ ‎ }$[ata](https://rocket.atabook.org/)$\texttt{\color{#be72b7} ‎ ♡ ‎ }$[strawpg](https://andrewpwn.straw.page/)
+[rentry](https://rentry.co/thelostadventurer)$\texttt{\color{#79babe} ‎ ♡ ‎ }$[ata](https://rocket.atabook.org/)$\texttt{\color{#be72b7} ‎ ♡ ‎ }$[strawpg](https://playgroundian.straw.page/)
 
 mery christmas guys\
 $\text{\color{#79babe} ‎ ♡ ‎ }$\
