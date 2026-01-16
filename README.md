@@ -8,7 +8,8 @@ $\text{\color{gray} rocket  ───  nukez }$\
 $\text{\color{gray}  s͟h͟e͟ he }$\
 $\text{\color{gray}  rocket id / selfhood }$\
 $\text{\color{gray} c+h always ! }$
-\
+
+$\text{\color{gray} i love my girlfriend }$\
 \
 [rentry](https://rentry.co/jackk)  [ata](https://rocket.atabook.org/)  [straw](https://playgroundian.straw.page/)
 
