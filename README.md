@@ -6,7 +6,8 @@ $\text{\color{gray}☆⌒(ゝ。∂)}$
 
 $\text{\color{gray} rocket  ───  nukez }$\
 $\text{\color{gray}  s͟h͟e͟ ✦ he }$\
-$\text{\color{gray}  rocket id / selfhood }$\
+$\text{\color{gray}  rocket id / selfhood }$
+
 $\text{\color{gray} c+h always enc ! }$
 
 $\text{\color{gray} i love my girlfriend @swordphight}$\
