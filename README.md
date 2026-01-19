@@ -5,6 +5,7 @@
 $\text{\color{gray}☆⌒(ゝ。∂)}$
 
 $\text{\color{gray} rocket  ───  nukez }$\
+$\text{\color{gray}⁽ ʳᵒᶜᵏᵉᵗ ᵖʳᵉᶠ ⁾}$\
 $\text{\color{gray}  s͟h͟e͟ ✦ he }$\
 $\text{\color{gray}  rocket id / selfhood }$
 
