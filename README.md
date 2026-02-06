@@ -15,6 +15,9 @@ $\text{\color{gray} i love my girlfriend @swordphight}$\
 \
 [rentry](https://rentry.co/stargazerrocket)  [ata](https://rocket.atabook.org/)  [straw](https://playgroundian.straw.page/)
 
+
+![](https://files.catbox.moe/31xee1.jpg)\
+thx funncloud 
  
 <details>
 <summary></summary>
