@@ -13,7 +13,7 @@ $\text{\color{gray} c+h always enc ! }$
 
 $\text{\color{gray} i love my girlfriend @swordphight}$\
 \
-[rentry](https://rentry.co/jackk)  [ata](https://rocket.atabook.org/)  [straw](https://playgroundian.straw.page/)
+[rentry](https://rentry.co/stargazerrocket)  [ata](https://rocket.atabook.org/)  [straw](https://playgroundian.straw.page/)
 
  
 <details>
