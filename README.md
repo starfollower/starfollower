@@ -27,6 +27,8 @@ $\text{\color{#545a6f} I am very low energy recently, just a byi}$
 
 $\text{\color{#4f445a} all art here is made by me ! }$
 
+![](https://komarev.com/ghpvc/?username=starfollower&style=flat-square&color=4b2945&label=eggsuit+otp)
+
 <img align="center" src="https://files.catbox.moe/rbkr88.png">  
 
 
