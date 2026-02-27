@@ -29,7 +29,15 @@ $\text{\color{#4f445a} all art here is made by me ! }$
 
 ![](https://komarev.com/ghpvc/?username=starfollower&style=flat-square&color=4b2945&label=eggsuit+otp)
 
+<details>
+<summary> </summary>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=4c344f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+</details>
+
 <img align="center" src="https://files.catbox.moe/rbkr88.png">  
+
 
 
 </div>
