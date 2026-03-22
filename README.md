@@ -17,7 +17,8 @@ $\text{\color{#4c344d} rocket + s͟h͟u͟r͟i͟k͟e͟n͟ selfhood}$
 
 
 $\text{\color{#4f445a} sword   ﹠ boombox selfshipper of 2+ years!}$\
-$\text{\color{#4f445a} (mirror sharer!! nonsharers dni oke) }$
+$\text{\color{#4f445a} (mirror sharer!! nonsharers dni oke) }$\
+$\text{\color{#4f445a} c + h is always encouraged ! }$
 
 $\text{\color{#545a6f} shoot me a w͟h͟i͟s͟per if you want to int}$\
 $\text{\color{#545a6f} alternatively sign my a͟t͟a͟b͟o͟o͟k͟ if i'm unresponsive}$\
