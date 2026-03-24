@@ -24,7 +24,7 @@ $\text{\color{#545a6f} shoot me a w͟h͟i͟s͟per if you want to int}$\
 $\text{\color{#545a6f} alternatively sign my a͟t͟a͟b͟o͟o͟k͟ if i'm unresponsive}$\
 $\text{\color{#545a6f} I am very low energy recently, just a byi}$
 
-[<img src="https://files.catbox.moe/4g3xhi.png">](https://rocket.atabook.org/) $\text{\color{#545a6f}✲}$ [<img src="https://files.catbox.moe/msjfj5.png">](https://rentry.co/stargazerrocket) $\text{\color{#545a6f}✲}$ [<img src="https://files.catbox.moe/xrb1ix.png">](https://pronouns.cc/@rocket)
+[<img src="https://files.catbox.moe/4g3xhi.png">](https://rocket.atabook.org/) $\text{\color{#545a6f}✲}$ [<img src="https://files.catbox.moe/msjfj5.png">](https://rentry.co/grandcannonade) $\text{\color{#545a6f}✲}$ [<img src="https://files.catbox.moe/xrb1ix.png">](https://pronouns.cc/@rocket)
 
 $\text{\color{#4f445a} all art here is made by me ! }$
 
