@@ -10,8 +10,7 @@
 <br>
  <a href="https://pronouns.cc/@rocket">prnscc</a>   <a href="https://rocket.atabook.org/">ata</a>  <br> 
             Cuddle me on pony.town<br> 
-            I wanna make friends but like<br> 
-            I think everyone on here hates my ass
+            Semi active Ok👍
             
 </p>
 </td>
