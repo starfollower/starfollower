@@ -10,7 +10,8 @@
 <br>
  <a href="https://pronouns.cc/@rocket">prnscc</a>   <a href="https://rocket.atabook.org/">ata</a>  <br> 
             Cuddle me on pony.town<br> 
-            Semi active Ok👍
+            Semi active Ok👍<br> 
+            i'm too lazy to actually make ponies 
             <details>
 <summary> </summary>
 
