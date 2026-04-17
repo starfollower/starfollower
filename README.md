@@ -26,7 +26,7 @@ $\text{\color{#545a6f} I am very low energy recently, just a byi}$
 
 [<img src="https://files.catbox.moe/4g3xhi.png">](https://rocket.atabook.org/) $\text{\color{#545a6f}✲}$ [<img src="https://files.catbox.moe/msjfj5.png">](https://rentry.co/grandcannonade) $\text{\color{#545a6f}✲}$ [<img src="https://files.catbox.moe/xrb1ix.png">](https://pronouns.cc/@rocket)
 
-$\text{\color{#4f445a} all art here is made by me ! }$
+$\text{\color{#4f445a} art made by me  }$
 
 ![](https://komarev.com/ghpvc/?username=starfollower&style=flat-square&color=4b2945&label=eggsuit+otp)
 
