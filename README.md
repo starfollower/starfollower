@@ -1,13 +1,11 @@
-
-<br>
 <br>
   <table>
     <tr>
-      <td>
-        <br>
+      <td> 
        　　　<p>
-</p>
-         <br>
+            $\color{#08060c}\tiny{\textsf{buried alive}}$
+            </p>
+     <br>
       </td>
     </tr>
   </table>
