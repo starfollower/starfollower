@@ -10,10 +10,10 @@
             rocket ● he/she
             <br>
               I'm canadian and I like ice hockey <br>
-              I am a cultural stereotype
+              I am a cultural stereotype <br>
+              also im not quebecois ok😊 
                </p>
      <br>
       </td>
     </tr>
   </table>
-            
