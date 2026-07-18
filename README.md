@@ -16,7 +16,7 @@ $\text{\color{#4a2e48} bpd + a͟dhd   18yo}$\
 $\text{\color{#4c344d} rocket + s͟h͟u͟r͟i͟k͟e͟n͟ selfhood}$
 
 
-$\text{\color{#4f445a} sword   ﹠ boombox mirrorshipper of 2+ years!}$\
+$\text{\color{#4f445a} sword   ﹠ boombox mirrorshipper of 3+ years!}$\
 $\text{\color{#4f445a} read my rentry for extended information !! }$\
 $\text{\color{#4f445a} c + h is always encouraged ! }$
 
