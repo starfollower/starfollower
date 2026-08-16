@@ -10,7 +10,7 @@
 <img align="left" src="https://files.catbox.moe/6x3nyb.png">
 
 
-$\text{\color{#441a38} r͟o͟c͟k͟e͟t͟  ෆ  dess }$\
+$\text{\color{#441a38} r͟o͟c͟k͟e͟t͟  ෆ  sci }$\
 $\text{\color{#4b2945} he / she  tmascneu butch lesb͟i͟a͟n͟ }$\
 $\text{\color{#4a2e48} bpd + a͟dhd   18yo}$\
 $\text{\color{#4c344d} rocket + s͟h͟u͟r͟i͟k͟e͟n͟ selfhood}$
