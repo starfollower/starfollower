@@ -8,7 +8,7 @@
       <td>
        　　　<p>
             <div align="center">
-rocket is me and i am her
+im a tranny faggot #lgbtq
 
 <br>
 <br>
