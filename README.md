@@ -3,8 +3,7 @@
   <table>
     <tr>
       <td>
-            <div align="center">
-              
+            <div align="right">
 rocketㅤorㅤnicknamesㅤㅤany prns<br> 
 18yo, -15 iwcㅤrocket ID/highkin<br>
 c+h freely.ㅤw2i pref, offtab a lot <br>
