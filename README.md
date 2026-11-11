@@ -1,5 +1,5 @@
 <div align="center">
-  <img align="center" src="https://file.garden/aYityv_gnxLLB07t/hi%20wpnz.png" width=20% height=20%>
+  <img align="center" src="https://file.garden/aYityv_gnxLLB07t/hi%20wpnz.png" width=25% height=25%>
   <table>
     <tr>
       <td>
