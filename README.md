@@ -14,7 +14,7 @@ Mirrorsharing Sword yume<br>
  <details>             
 <summary></summary> 
  <sub> friends i usually sit w/ :-3  <br>
-   <a href="https://github.com/exorpirate" target="_blank">exor</a> <a href="https://github.com/Pixelbrickz" target="_blank">pixel</a> <a href=https://github.com/gumbawll" target="_blank">spark</a> <a href=https://github.com/montlie" target="_blank">andrew</a> <br>
+   <a href="https://github.com/exorpirate" target="_blank">exor</a> <a href="https://github.com/Pixelbrickz" target="_blank">pixel</a> <a href=https://github.com/gumbawll target="_blank">spark</a> <a href=https://github.com/montlie target="_blank">andrew</a> <br>
    ask 2 be added
    <br>
    ──────────────
